@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **david_alk@outlook.com**
 
-- ⚡ Fun fact **I am a Karate black belt**
+- ⚡ Fun fact **I am a Karate black belt 🥋**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
